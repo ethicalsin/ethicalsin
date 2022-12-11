@@ -7,7 +7,7 @@ PYTHON AND HTML
 - 💞️ I’m looking to collaborate on ...
 LEARNING NEW THINGS
 - 📫 How to reach me ...
-JUST SEND A 'HII' ON INSTAGRAM(@sierra770000)
+JUST SEND A 'HII' ON INSTAGRAM(@sh770000)
 
 <!---
 ethicalsin/ethicalsin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
